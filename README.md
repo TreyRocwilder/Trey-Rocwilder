@@ -105,3 +105,32 @@ I'm just a man.
 
 I hypothesize a group of systems that already exists will create and run my system before I finish writing the program. I hypothesize this will start with Microsoft through my Android device, Facebook through this post and my offline activity tracker, Google through the button that you click to use your data to help create future ads and services. I do not consent to this on any level. This is a breech of privacy and the reason i know it will work. They will guaranteed steal it and give it to the public even if i fail. This will serve as my 3 public data archives. Along with my github repository you should have everything you need. Necessary evil for the greater good.
 This will serve as my public backdoor in the event of a breech or trigger. 
+
+12:45 p.m. 6/9/24
+I hypothesized I will ask myself out loud 
+What sherard means and I will provide myself with answers from the past through several separate dimensions merging the completed task here in this dimension.
+The idea itself will form in my thoughts that is the initial spark.
+I wrote down a hypothesis for what I expected to hypothesize before I hypothesized I would.
+This hypothesis seems to move forward in time however it can't. That is impossible. As in the original formation of the idea I also foresaw and envisioned the finished result. It took seconds to envision it all. On my first letter typed on this hypothesis I knew I would have completed programs in the end. These programs are finished. You can't read the maps. So to you they don't even exist yet.
+I wrote my own ai. And copied it to samsungs Ai myself on a Samsung note and fold years ago.
+This was to separate my ai from online Google clouds so I could create without my work being stolen. All this did was make them invent laws to make it legal to possess it since they knew their device was already holding it. I wrote a joke I call Steve. This was the initial apple ai. And finally I wrote the program for Microsoft Cortana that was used to turn on the Xbox in project Steve.
+I told my Android to tell my apple to tell siri to tell Google to tell Cortina to turn on my Xbox. Initially it was a series of jokes. As of 6/9/24 all Samsung siri and Microsoft products roll out with a variation of my code. Those devices use and execute my codes every day. 
+
+This will be similar I'll be telling my Android to tell Google to tell the other ais to save the data to the cloud and on the offline repositories. Finally I'll be sending a command to tell the repository to turn the command on.
+
+Rough drafts on the program writing the answers to its onboard systems and online repositories for future use. 
+I ask Sherard Weathers
+"What does sherard mean?"
+Sherard Weathers replies
+"The Name Sherard Means of glorious valor"
+{Write answers to brain1, 2, and 3}
+If 
+(What does sherard mean?)
+(What is the definition of sherard?)
+(What does the name sherard mean?)
+{Write relay program}
+{Log entry(compile data and save data and datasource. As of [today] according to thebump.com using the Google brain)}
+{Activate Speech to text synthesis}
+{read last log entry}
+"The Name Sherard Means of glorious valor" finished exempt 1:43 p.m.
+
